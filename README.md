@@ -6,8 +6,8 @@ Hi there👋
 - 💞️ I’m looking to collaborate on many projects to see all the methodoly development in the world, good luck for me !
 - 📫 How to reach me : myderahrazafinoro@gmail.com
 
-<!---
+
 More about SAYNA :https://sayna.space/ 
 You can click the Preview link to take a look at your changes.
 
-To the pleasure collaboring together👊...
+To the pleasure collaboring OR exchanging together...
