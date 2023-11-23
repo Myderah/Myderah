@@ -1,4 +1,4 @@
-Hi there👋
+ 👋🏼 Hi there
 
 - 👋 Hi, I’m @Myderah from SAYNA, It's a digital school to learn all digitals jobs ith a good family spirit and game way.
 - 👀 I’m interested in code but I'm not developer, sorry !
